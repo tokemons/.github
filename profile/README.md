@@ -1,4 +1,4 @@
-![tokemons-min](https://github.com/user-attachments/assets/83902d5b-5919-4a63-a16e-45a7dd1b1610)
+![tokemons](https://github.com/user-attachments/assets/2485c0e6-27b6-42f1-ab53-0aa8cbbfeff0)
 
 
 <!--
